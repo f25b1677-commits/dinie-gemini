@@ -1,1 +1,0 @@
-# dinie-gemini
